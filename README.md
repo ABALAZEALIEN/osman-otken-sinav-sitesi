@@ -1,1 +1,0 @@
-# osman-otken-sinav-sitesi
